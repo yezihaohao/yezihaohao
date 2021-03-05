@@ -6,7 +6,7 @@
 
 - 📫 个人邮箱: yezi.haohao@foxmail.com
 - 💬 个人微信: yezihaohao2020
-- 📮 长期招人，简历请投递: yuye.ch@antgroup.com
+- 📮 长期招人: yuye.ch@antgroup.com
 
 > 在学习中成长，在成长中沉淀，在沉淀中做事
 
